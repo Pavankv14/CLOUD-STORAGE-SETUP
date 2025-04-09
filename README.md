@@ -12,3 +12,5 @@ DESCRIPTION : I HAVE BEEN OPENED AN AWS ACCOUNT BY WATCHING YOUTUBE VEDIOS AND C
 <img width="960" alt="Image" src="https://github.com/user-attachments/assets/145a61d4-6fd0-4197-9089-c0c4617384da" />
 
 <img width="960" alt="Image" src="https://github.com/user-attachments/assets/3a345da4-2006-4a80-8eec-23e7bb0b22ed" />
+
+<img width="960" alt="Image" src="https://github.com/user-attachments/assets/a341f571-4bbf-4609-9cfb-44be7bc16ee1" />
